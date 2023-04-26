@@ -17,5 +17,5 @@ com o acompanhamento e anotações 💗<br/>das orientações do projeto, revis�
 <h3 align="center"> {✿◠‿◠} Muita gratidão! ✨🤗✨<br/><h3>  
 
 
-![](https://miro.medium.com/v2/resize:fit:1400/0*cGxoc7DaxUyDS74e.png)
+![](https://cdn.sketch.com/assets/blog/what-is-a-wireframe-header@2x.png)
 ___
